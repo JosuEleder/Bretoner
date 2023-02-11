@@ -1,4 +1,4 @@
-# Bretoner
+# Bretonstein
 # Script de generación de poesía automática en español por reglas
 
 _Día 1_
