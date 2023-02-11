@@ -33,7 +33,7 @@ El científico accionó, con fuerza y decisión, su palanca. Cuatro chispas poco
 
 -Bueno... claramente, con una inteligencia tan superior no se puede esperar que use palabras habituales para el c...
 
-**Diversa prosperidad periplásmica contrapasó la interpretación profesa**
+**Diversa prosperidad periplásmica contrapasó la interpretación profesa**  
 **Demasiado obelo amperimétrico juraría esotro replanteamiento torticero**
 
 -Bueno, parece claro que, si quiero que su ingenio sea percibido por las masas, voy a tener que sugerirle que empleé términos un poco más comunes -musitó, mientras garabateaba en un cuaderno-. Bien. Pero no me importa. Antes que eso, ¡¡quiero que sea capaz de hacer poesía!! Que genere versos endecasílabos sin esforzarse, y que además rimen. Y para ello, dado que es absurdo emplear algo de mi valiosísimo tiempo en recrear las tediosas tareas que otros han realizado anteriormente, ¡tocará hacer una visita a un viejo conocido... oh, sí... el esquivo pero valioso Señor de Pyverse! ***¡¡¡JA, JA, JA!!!***
